@@ -1,0 +1,1 @@
+# ka_6_hii_ruut_test
